@@ -1,7 +1,7 @@
 # vincent
-8 juin 2024
+## 8 juin 2024
 je m'apelle vincent j'ai 9 ans je suis né au canada
-mintenan j'abite en france j'ai une grande soeur de 11 ans et j'ai deux chat uréa et ulina
+mintenan j'abite en france j'ai une grande soeur de 11 ans et j'ai deux chats uréa et ulina
 le nom de mon école est notre dame de latriniter la directrice de l'école s'apelle jeune viève ma métraisse s'apelle claire
 j'ai 29 amis et je suis aller au brésil voir nos amis
 j'ai construi le lego titanic en 2 semaine j'adore roblox
@@ -9,3 +9,19 @@ je connai le nom de plusieurs bateaus lusitania/le britannic/le carpatia/le tita
 je fait du foot et du tennis
 mes monstres  préférer son scp 3008/096/173/3000
 j'aime bien lire chaire de poule
+
+## 9juin 2024
+se matin je suis aller a jardi land.
+on va fété l'annive de ma soeur la moitier de ma famille va venir.
+j'adore jouer avec mes chats et aussi à mincraft.
+j'adore ma famille et mes amis.
+mon thème préférer est la guerre.
+mon poste de foot est attaquant.
+je fait souvant du tennis avec ma mère.
+j'ai une grande maison.
+je vait faire du catamarant avec ma soeur.
+je vait aller en alsace.
+je vait aller à europa parck.
+je vait bien m'éclater.
+je vait aller à rome avec ma famille.
+sa va être tros bien.
