@@ -32,12 +32,16 @@ Pendant ce temps moi j'ai fété l'anniv de Maena et on est aller à l'acrobranc
 mon papa est venu me chercheret on a diner avec des amis et nous avon
 regarder un film.
 Aujourd'ui je vais aller au cinéma avec ma mère et ma sœur alors que papa va aller à l'ultimate.
-Ce matin maman m'a prèparé des gauffres ça va être tros bon.
-À la prochène.
+Ce matin maman m'a prèparé des gauffres ça va être tros bon.ouai
 
-
-
-
-
-
-
+ ## 19 juin 2024
+ce matin il y a ue de la plui de l'orage des éclaires.
+ma sœur est aller cher sa copine et moi je suis rester à la maison avec mes parents.
+j'ai aussi acheté des armes en lego je suis aller àla médiathèque.
+j'ai écouter de la musique avec mon téléphone et j'ai aussi fait des photo.
+j'ai appeller mon papi pour lui dire happy birthday.
+j'areite pas de mennuiller.
+mon papa nou a montrer une nouvelle application.
+j'ai 16 euro 21 dans ma tirelire.
+notre copine silvenne est venue nous voir.
+je me demande se que je vait fair.
