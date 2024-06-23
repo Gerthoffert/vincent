@@ -45,3 +45,26 @@ mon papa nou a montrer une nouvelle application.
 j'ai 16 euro 21 dans ma tirelire.
 notre copine silvenne est venue nous voir.
 je me demande se que je vait fair.
+
+## 22 juin 2024
+J'ai fait du vélo pour aller à l'école.
+Manuelle n'était pas la.
+On a fait du ping pong,du foot et handball.
+En voulant faire l'équilibre je suis retomber sur le dos etje me suis fait très mal.
+Ce soir je vait à la fête de la musique.
+Mes autre scp préférer son scp :300, 4378, 2342, 1535, 3345, 9758,2000, 2341, 7869...
+hier soir, on a manger des chichi géan et des pâte bolo.
+on a aussi écouter de la musique.
+et on a manger des bonbon, un gâteau, du pop corn et on a fait du badminton et du foot.
+
+## 23 juin 2024
+se matin je vait manger des gaufre au chocola.
+hier c'était mon anniversaire j'ai eu beaucoup de cadeau surtou des legos.
+on a aussi fait des guerres.
+et on a construi 2 legos.
+aujourd'hui on va construire d'autre legos.
+en écoutent de la musique bien sur.
+et se soir je vait faire du badminton avec ma maman.
+se matin mes amis son parti chez euet nous on est resté chez nous.
+on c'est bien amusé hier et aujourd'hui je vait continuer braw star mon jeu vidéo préférer.
+j'ai hate de revoir mes amis et ma métraisse.
