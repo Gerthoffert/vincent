@@ -68,3 +68,16 @@ et se soir je vait faire du badminton avec ma maman.
 se matin mes amis son parti chez euet nous on est resté chez nous.
 on c'est bien amusé hier et aujourd'hui je vait continuer braw star mon jeu vidéo préférer.
 j'ai hate de revoir mes amis et ma métraisse.
+
+## 28 juin 2024
+Je vais jouer à brawl star avec mes amis.
+On a apri notre kermesse avec d'autre classe.
+Je viens de finir le badminton avec ma mère.
+Ma mère a gagner au badminton 21/5.
+En classe on a fait la dèrnièr billeterie olympique.
+Dans 7 jours c'est les vacances et on va aller à Rome.
+On va avoir de la route. Mais d'abord, on va parcourir 400 kilomètres en vélo.
+On va faire du camping puis papi et mami vont venir nous retrouver pour passer quelque jours avec nous. Nous allons bien nous amuser ensemble. J'ai hâte.
+
+
+
