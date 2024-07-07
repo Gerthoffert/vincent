@@ -79,5 +79,42 @@ Dans 7 jours c'est les vacances et on va aller à Rome.
 On va avoir de la route. Mais d'abord, on va parcourir 400 kilomètres en vélo.
 On va faire du camping puis papi et mami vont venir nous retrouver pour passer quelque jours avec nous. Nous allons bien nous amuser ensemble. J'ai hâte.
 
+## 29 juin 2024
+On va aller à la kermesse danser et je vais jouer avec mes amis.
+Ma mère et ma sœur sont allées chercher ma mami et aprè mes autres grand parents vont venir nous rejoindre.
+Hier on a regardé un film qui s'appelle papa ou maman et il disait des gros mots, des doigts d'honneur et il cassait la maison.
+Je suis fatigué ce matin.
+On a rangé mes legos.
+Sur brawl star je suis en train de débloquer une abeille.
+Ma nouveile chansson s'appelle en feu.
+je vais jouer à brawl star je vais m'amuser là ba.
+
+## 30 juin 2024
+Ma mami est restée dormir.
+Hier avec ma mami on a joué au rumicube.
+Je vait aller voter.
+Je vait jouer à brawl star sur ma tablette.
+Ce matin on a mangé des gaufe au pépite de chocolat.
+C'est biento les vacances d'été, j'ai hâte.Manuelle va peut-être venir chez moi comme Jeyden la fait avec nous.
+Mais on va pas aller à l'acrobranche comme Jeyden.
+
+
+
+### la kermesse
+On a retrouvé un gant déchiré et on a vu des racailles avec des couteaux et nous avons pris des battes.
+J'ai aussi manger beaucoup de bonbon et de boisson.
+
+## 5 juin 2024
+Ce matin comme tous les autre matins on à pris notre petit-déjené et en allent à l'école j' aitait exiter
+
+
+
+
+
+
+
+
+
+
 
 
